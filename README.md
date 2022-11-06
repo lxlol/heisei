@@ -8,3 +8,4 @@
 
 
 ### :computer: yamero
+[<img src="https://user-images.githubusercontent.com/117464422/200178749-ceb95ca6-efd3-44ec-9be9-8098deb135b5.jpeg" width="200">](https://twitter.com/HatobaTsugu)
